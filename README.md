@@ -27,3 +27,5 @@ Una vez termines el curso podrás seguir con los mejores cursos de análisis de 
 
 Jaime Aldana Holi
 holos
+
+Oye que pacho
